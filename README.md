@@ -12,6 +12,6 @@
  ⌣⌣⌣⌣⌣⌣⌣⌣
   ⟣ cellbit + host ◞
 
-   number 1 @lezpilled supporter
+check strwpage + status for my epic friends !
 
 <img src="https://64.media.tumblr.com/27a801ba6b33ae604c63c8a471894c10/ee80aebd4efb6683-4e/s250x400/0227bcce2a790a8b867414db1756f5a82f3bc0ae.png" alt=" "  width=800>
